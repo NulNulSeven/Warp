@@ -1,4 +1,3 @@
-XX
 WARP GENERATOR Enhancing Scalar and PSI-Wave Transmissions!
 Warp Drive Unit: Energy Exchange Mechanisms and Proof of Application
 Overview
